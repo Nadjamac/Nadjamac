@@ -1,5 +1,5 @@
 
- Ola!Seja Bem Vindo  👋
+ Seja Bem Vindo  👋
 
 -->🎯Sou estudante Bluemer FullStack ...
 -->🌐Amante de Tecnologia ...
