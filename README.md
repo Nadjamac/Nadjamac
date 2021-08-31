@@ -1,0 +1,6 @@
+
+### Hi there 👋
+<!--
+-->🎯Sou estudante Bluemer FullStack ...
+-->🌐Amante de Tecnologia ...
+--> ⚠ Disponivel para  Estagios !
